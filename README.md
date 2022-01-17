@@ -1,0 +1,2 @@
+# freefirediamond
+Diamond gratis
